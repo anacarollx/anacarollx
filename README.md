@@ -1,0 +1,7 @@
+- Me chamo Ana Caroline
+- Tenho 17 anos 
+- Ela/Dela 
+- Cristã
+- Gosto de tirar fotos de paisagens
+- Gosto de ter momentos com a família 
+- Gosto da área de humanas
